@@ -1,1 +1,3 @@
-One of the 5 kingdoms of [[Lycra]]
+*A kingdom within [[Lycra]]*
+
+The capital is [[Everbrook]]

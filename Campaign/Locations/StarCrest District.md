@@ -1,3 +1,3 @@
-The wealthy citiscents of Everbrook
+*A district within [[Everbrook]]* 
 
-A casino called [[The Mirage]]
+The wealthy district of [[Everbrook]], it even has a large casino called [[The Mirage]]

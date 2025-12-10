@@ -1,2 +1,3 @@
+Is the main hideout location for the [[Truth Breakers]]
 
-![[Pasted image 20251208234223.png]]
+![[Embers Complex.png]]

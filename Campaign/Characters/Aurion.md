@@ -1,1 +1,1 @@
-Dragon god
+Dragon god who many years ago defeated the [[Ancient god]]

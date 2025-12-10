@@ -1,4 +1,4 @@
-A group consisting of likeminded individuals that hate the church and will attempt to bring it down at any means possible. 
+A group consisting of likeminded individuals that hate the church and will attempt to bring it down at any means possible. Is their home-base is located in [[Embers Complex]]
 
 It consists of 3 cells (groups) and their leaders. 
 
